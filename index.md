@@ -1,4 +1,4 @@
-## Welcome to Save Paws
+## Welcome to Save Little Paws
 
 We are a free, charity cat sanctuary based in Pakistan.
 
